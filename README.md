@@ -7,7 +7,7 @@ Email Me 👉 ✉️ **marufjuiit@gmail.com** For Collaboration/Project or Anyth
 - 🌱 **I’m currently learning:DevOps** 
 - 👯 **I’m looking to collaborate on:Immigration Control**
 - 💬 **Ask me about:ASP.NET Core || ASP .NET MVC || MS SQL**
-- 📫 **How to reach me:marufjuiit@gmail.com**
+- 📫 **How to reach me:whatsApp +8801677-383110**
 - 😄 **Pronouns:Maruf**
 - ⚡ **Fun fact:I Love Tech and Tech Love Me**
 
